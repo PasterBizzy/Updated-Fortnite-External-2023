@@ -20,7 +20,6 @@ Fortnite Cheat Update
 
 [ + ] Added some stuff to xMainLoop                                                                                                                                                      
 
-[ + ] Changed the Visible                                                                                                                                                      
 
 [ + ] Added a better isVisible code.                                                                                                                                                      
 

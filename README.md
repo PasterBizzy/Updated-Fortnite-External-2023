@@ -9,4 +9,4 @@ fortnite external by **LOLTF#4825**
 
 if you need help dm -> **LOLTF#4825** or join our discord server https://discord.gg/unknowncheats                                                                                                                                                                                                                                                                                                                                                                                                                        Preview of the Fortnite External: https://streamable.com/ihbxcz
 
-UwU
+Make sure to join our discord server https://discord.gg/unknowncheats

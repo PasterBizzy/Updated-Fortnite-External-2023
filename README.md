@@ -10,3 +10,5 @@ fortnite external by **LOLTF#4825**
 if you need help dm -> **LOLTF#4825** or join our discord server https://discord.gg/W9tbe9Ch                                                                                                                                                                                                                                                                                                                                                                                                                   Preview of the Fortnite External: https://streamable.com/ihbxcz
 
 Make sure to join our discord server https://discord.gg/W9tbe9Ch
+
+(IF U SELL THIS UR FUCKED IN THE HEAD)
